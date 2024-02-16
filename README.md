@@ -1,1 +1,0 @@
-# yasinskyegor.github.io
